@@ -1,6 +1,6 @@
 💻 CHGabi_bat
 
-Üdv a CHGabibat hivatalos GitHub oldalán!Itt találod a kamu hacker cuccokat, .bat fájlokat, prank scriptjeimet és mindenféle digitális káoszt. 😈
+Üdv a CHGabibat hivatalos GitHub oldalán! Itt találod a kamu hacker cuccokat, .bat fájlokat, prank scriptjeimet és mindenféle digitális káoszt. 😈
 
 🎥 YouTube csatorna: CHGabi_bat🧪 Batch fájlok, parancssoros trollkodás, kamuhackek és egyéb tech-mémek.
 
