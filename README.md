@@ -16,7 +16,7 @@ cmd meme – kamu hibák, csipogás, villogás, élvezet
 
 Ezek a fájlok kizárólag szórakoztató vagy oktatási célra készültek.Ne használd őket rosszindulatú módon, ez csak poén. A valódi hackelés illegális, és uncsi is. 😎
 
-📬 Elérhetőségek / Közösségi platformok
+📬 Elérhetőségeim / Közösségi platformok
 
 YouTube: @CHGabi_bat
 
