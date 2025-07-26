@@ -19,8 +19,11 @@ Ezek a fájlok kizárólag szórakoztató vagy oktatási célra készültek.Ne h
 📬 Elérhetőségeim / Közösségi platformok
 
 YouTube: @CHGabi_bat
+
 Discord: https://discord.gg/EXHPHRg7f2
+
 TikTok: https://www.tiktok.com/@chgabi_bat?_t=ZN-8yMCCwzH1T4&_r=1
+
 Insta / → hamarosan…
 
 Maradj parancssoron. Maradj káoszban. Maradj .bat.👾
