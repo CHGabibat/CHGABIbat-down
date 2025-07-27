@@ -18,7 +18,7 @@ Ezek a fájlok kizárólag szórakoztató vagy oktatási célra készültek.Ne h
 
 📬 Elérhetőségeim / Közösségi platformok
 
-YouTube: @CHGabi_bat
+YouTube: [@CHGabi_bat](https://www.youtube.com/channel/UCTcuGZCY7Img1z5ftOAhtEA)
 
 Discord: https://discord.gg/EXHPHRg7f2
 
