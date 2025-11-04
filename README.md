@@ -1,29 +1,29 @@
 💻 CHGabi_bat
 
-Üdv a CHGabibat hivatalos GitHub oldalán! Itt találod a kamu hacker cuccokat, .bat fájlokat, prank scriptjeimet és mindenféle digitális káoszt. 😈
+Welcome to the official GitHub page of CHGabibat! Here you will find fake hacking stuff, .bat files, my prank scripts and all kinds of digital chaos. 😈
 
-🎥 YouTube csatorna: CHGabi_bat🧪 Batch fájlok, parancssoros trollkodás, kamuhackek és egyéb tech-mémek.
+🎥 YouTube channel: CHGabi_bat🧪 Batch files, command line trolling, fake hacks and other tech memes.
 
-🧾 Mit találsz itt?
+🧾 What will you find here?
 
-fake virus – nem csinál semmit... vagy mégis?
+fake virus – does nothing... or does it?
 
-hacker menu – tipikus hollywoodi hacker menü szimuláció
+hacker menu – typical Hollywood hacker menu simulation
 
-cmd meme – kamu hibák, csipogás, villogás, élvezet
+cmd meme – fake errors, beeps, flashes, enjoyment
 
-⚠️ Fontos
+⚠️ Important
 
-Ezek a fájlok kizárólag szórakoztató vagy oktatási célra készültek.Ne használd őket rosszindulatú módon, ez csak poén. A valódi hackelés illegális, és uncsi is. 😎
+These files are made for entertainment or educational purposes only. Do not use them in a malicious way, it's just a joke. Real hacking is illegal and also annoying. 😎
 
-📬 Elérhetőségeim / Közösségi platformok
+📬 My Contacts / Social Platforms
 
-YouTube: [@CHGabi_bat](https://www.youtube.com/channel/UCTcuGZCY7Img1z5ftOAhtEA)
+YouTube: [@CHGabi_bat] https://www.youtube.com/channel/UCTcuGZCY7Img1z5ftOAhtEA
 
-Discord: https://discord.gg/EXHPHRg7f2
+Discord: https://discord.gg/AgVpVutuQg
 
 TikTok: https://www.tiktok.com/@chgabi_bat?_t=ZN-8yMCCwzH1T4&_r=1
 
-Insta / → hamarosan…
+Insta / → coming soon…
 
-Maradj parancssoron. Maradj káoszban. Maradj .bat.👾
+Stay on command. Stay in chaos. Stay .bat.👾
