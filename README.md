@@ -24,6 +24,8 @@ Discord: https://discord.gg/AgVpVutuQg
 
 TikTok: https://www.tiktok.com/@chgabi_bat?_t=ZN-8yMCCwzH1T4&_r=1
 
+website: https://chgabibat--mikodu.webnode.hu/?_gl=1*kd9kfw*_gcl_aw*R0NMLjE3NjI0NDI1MjEuQ2owS0NRaUFxN0hJQmhEb0FSSXNBT0FURHhCVHVCeGd0ZXhOZlRYQ1U5eXRwaE5tMU5UemEwWFZqaDRvTkcwYkwwbXJQWGFPNlc5ZnFDOGFBckJyRUFMd193Y0I.*_gcl_au*MTA4MjEzOTQxNS4xNzYyNDQyNTIyLjE3Njc3NDIzNTQuMTc2MjQ1MDQ3Ni4xNzYyNDUwNDc2
+
 Insta / → coming soon…
 
 Stay on command. Stay in chaos. Stay .bat.👾
